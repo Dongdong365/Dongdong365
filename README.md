@@ -1,16 +1,14 @@
-## Hi there 👋
-
-<!--
-**Dongdong365/Dongdong365** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+你好，我是我
+我喜欢做我喜欢的事情
+--
+哦，还要说我在哪里吗
+我在
+拉尼亚凯亚超弊伏星系团-室女座星系团-本星系群-银河系-户臂-古尔德带-本地泡-本星际云-奥尔特云-太阳系的第三行星 上 
+就是 地球 a.?
+--
+我好像不大会编写 任何东西..
+然后就是 都是ai帮我写的..
+--
+这个格式是我抄别人的
+嗯
+我凑不出来字数了.
