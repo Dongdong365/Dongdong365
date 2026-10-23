@@ -21,3 +21,8 @@
 期待依托社区力量持续完善、共同成长！
 
 👉 [基础向-铁锈战争开服教程](https://rustedsvrwiki.de5.net)
+
+联系邮箱：`hellodong@rustedsvrwiki.de5.net`
+友链申请、文档勘误、交流想法都欢迎来信！
+
+开服教程29年正式完成第三轮编辑并正式上线！
